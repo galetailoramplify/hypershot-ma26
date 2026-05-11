@@ -1,4 +1,4 @@
-#  
+#  hidden Scripts for pressure is the best pressure Script, featuring auto-upgrade and no cooldown. Safe and powerful for all your needs.
 
 
 
